@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @officialmeliorate
-- 👀 I’m interested in doing projects
+- 👀 I’m interested in doing innovative projects
 - 📫 Touch with me on officialmeliorate@gmail.com
 
 <!---
