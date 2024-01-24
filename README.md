@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @officialmeliorate
 - 👀 I’m interested in doing innovative projects
-- 📫 Touch with me on officialmeliorate@gmail.com
+- 📫 Connect with me on officialmeliorate@gmail.com
 
 <!---
 officialmeliorate/officialmeliorate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
